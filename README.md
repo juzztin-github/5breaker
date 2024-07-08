@@ -6,7 +6,7 @@ Intel Unnati Industry Training- Summer 2024
 Team - 5breaker
 
 Participants -  
-1. Mounish 
+1. Mounish (Team Lead)
 
 2. S Olive Keran
 
